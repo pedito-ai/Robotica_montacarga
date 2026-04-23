@@ -1,1 +1,0 @@
-# Robotica_montacarga
